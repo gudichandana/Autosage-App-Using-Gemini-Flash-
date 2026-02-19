@@ -1,1 +1,0 @@
-PPT of the project
